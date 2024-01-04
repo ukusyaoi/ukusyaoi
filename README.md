@@ -1,5 +1,3 @@
-(*あまりに刹那的*) *ready to break the hate* 
-
 ![](https://media.discordapp.net/attachments/1049607541274968124/1065435476246413332/image0.gif)　**NEVA**　*or*　**JYU**  ｡ ![](https://files.catbox.moe/fomg3y.gif)
  ![](https://i.imgur.com/800jEql.gif)  #1 JIROSHI FAN! ![](https://i.imgur.com/800jEql.gif)
 
