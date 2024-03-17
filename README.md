@@ -5,6 +5,5 @@
  
    read for more in my **[rentry](https://rentry.co/IAMTHEHERO)** !
 
-![](https://media.discordapp.net/attachments/1188072799303118859/1188093578115829810/chpic.su_-_Hypmic_chibi_023_1.png?ex=6599455e&is=6586d05e&hm=64567c5954178983f7ec96c4a7f78f29bb5f3935517101ece7f67df09f70e6bc&=&format=webp&quality=lossless&width=273&height=273) ![](https://media.discordapp.net/attachments/1188072799303118859/1188093354710421514/chpic.su_-_Hypmic_chibi_016.png?ex=65994529&is=6586d029&hm=d70ea70083cd7599e87f2070a82b34086613152ff6c98f71bdfa60bbefcec889&=&format=webp&quality=lossless&width=273&height=273)
-
-![](https://media1.tenor.com/m/fK2UI11yYXsAAAAC/hypnosis-mic-hypmic.gif)
+![](https://media.discordapp.net/attachments/1218263829109014598/1218286402056356050/tumblr_inline_p5lxjhJ8k41uli3vd_1280.png?ex=66071ca0&is=65f4a7a0&hm=b8a4ac4dfe276ce37220d786c65a51eef839071e33c5d9037aad9d6df115fe2d&=&format=webp&quality=lossless&width=865&height=473)
+![](https://media.discordapp.net/attachments/1218263829109014598/1218286402689700001/tumblr_inline_p5lxnsKJd01uli3vd_1280.png?ex=66071ca1&is=65f4a7a1&hm=fec4270dcce3349bcc35bd2df5701029737610676694548c61b704cb654f2ce1&=&format=webp&quality=lossless)
