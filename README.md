@@ -41,7 +41,7 @@ As an example, despite being an ex-colony, Denmark/Norway is **NOT** an incestuo
 - ...or Italy and Romano ("Vargas")
 - ...or Germany and Prussia ("Beilschmidt"), 
 
-###...are different ("Kirkland vs Jones").
+### ...are different ("Kirkland vs Jones").
 
 > This paves the way to the argument that Hima's human name assignments can be one of the closest canon material that confirms if one nation is related to another.
 
@@ -52,27 +52,9 @@ In the Cardverse, America and England are the **King and Queen**. This may be th
 
 ### UKUS YAOI DRAMA CDS WERE MADE!
 > (*Note: These mentioned drama CDs have no impact canon timeline and are usually created for fanservice, however, are drawn from canon material) 
+- Works of Yaoi Drama CDs tend to make it very well known if the characters are in an incest relationship. And in the CD, they are not.
 
-Works of Yaoi Drama CDs tend to make it very well known if the characters are in an incest relationship. And in the CD, they are not.
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+**Thank you for reading until the very end! Once again, incest is disgusting, real OR fictional, yikes!**
 
 
 
