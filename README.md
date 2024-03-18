@@ -8,10 +8,10 @@
 
 ![](https://media.discordapp.net/attachments/1212471420760887417/1219333775436025996/strawpage-picasso-uTkrUuKktmuINhZMlxTJ.png?ex=660aec12&is=65f87712&hm=54873fac9946bafdd65b6e4140dbcafb985db6e9b9d533121e08a4948cf65278&=&format=webp&quality=lossless&width=240&height=173) 
 
-Hello! Before everything, let me explain something real quick so you don't embarrass yourself like this guy (whoever you are, aren't you a silly thing.)
+Hello! I just felt like explaining something real quick so you don't embarrass yourself like this guy (whoever you are, aren't you a silly thing.)
 Let's not accuse someone of shipping incest while you got no idea what you're talking about. Incest is disgusting.
 
-Although the Wiki says that it is debatable whether they are brothers or not - as it is not confirmed by Hima - there are a lot of arguments that easily could prove that England and America are **NOT** brothers.
+Although the Wiki says that it is debatable whether they are brothers or not - as it is not yet confirmed by Hima - there are a lot of arguments that could easily prove that England and America are **NOT** brothers.
 
 The most common argument supporting that America is England's brother is the fact that;
 > **England has raised America.**
