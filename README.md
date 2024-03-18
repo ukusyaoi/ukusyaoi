@@ -9,7 +9,7 @@
 ![](https://media.discordapp.net/attachments/1212471420760887417/1219333775436025996/strawpage-picasso-uTkrUuKktmuINhZMlxTJ.png?ex=660aec12&is=65f87712&hm=54873fac9946bafdd65b6e4140dbcafb985db6e9b9d533121e08a4948cf65278&=&format=webp&quality=lossless&width=240&height=173) 
 
 Hello! I just felt like explaining something real quick so you don't embarrass yourself like this guy (whoever you are, aren't you a silly thing.)
-Let's not accuse someone of shipping incest while you got no idea what you're talking about. Incest is disgusting.
+Let's not accuse someone of shipping incest while you have no idea what you're talking about. Incest is disgusting.
 
 Although the Wiki says that it is debatable whether they are brothers or not - as it is not yet confirmed by Hima - there are a lot of arguments that could easily prove that England and America are **NOT** brothers.
 
@@ -20,15 +20,15 @@ The most common argument supporting that America is England's brother is the fac
 
 The most important detail is that the characters in Hetalia are nations with human characteristics, making them NOT entirely human. 
 
-So, the "raise" in the system of Hetalia may not be the usual "raise" in human context. As nations raise each other up and influence each other. 
+So, the "raise" in the system of Hetalia may not be the usual "raise" in a human context. As nations raise each other and influence each other. 
 
 ### And as much as England 'raised' America,
 
-- Their pre-revolution relationship was colonisation, nothing more. And they never called each other brothers, so there isn't a canon way to know that they view each other as brothers: 
+- Their pre-revolution relationship was colonization, nothing more. And they never called each other brothers, so there isn't a canon way to know that they view each other as brothers: 
 - **In the African War Front episode (127), when a soldier claimed that the two were brothers, England was the one who dismissed it, although it would usually be America as he is the one who revolted to refute that, showing he __himself__ knows that they aren't brothers**.
-- Their 'siblingship' is easily breakable as, again, their pre-revolution relationship at its core was colonisation, **not true brothers**, and such bonds can break this way because these characters are essentially nations who work differently from a normal human being and should not be tied down by **human standards**.
+- Their 'siblingship' is easily breakable as, again, their pre-revolution relationship at its core was colonization, **not true brothers**, and such bonds can break this way because these characters are essentially nations who work differently from normal human beings and should not be tied down by **human standards**.
 
-As an example, despite being an ex-colony, Denmark/Norway is **NOT** an incestuous ship.
+As an example, despite being an ex-colony, Denmark/Norway is **NOT** an incestrous ship.
 > This creates the argument that the rage behind this 'incest' debate was actually a mere strongly advertised **bias** haters made rather than a real point.
 
 ### Important to remember it's an anime: meaning it's influenced by Asian culture/views.
@@ -43,19 +43,18 @@ As an example, despite being an ex-colony, Denmark/Norway is **NOT** an incestuo
 
 ### ...are different ("Kirkland vs Jones").
 
-> This paves the way to the argument that Hima's human name assignments can be one of the closest canon material that confirms if one nation is related to another.
+> This paves the way for the argument that Hima's human name assignments can be one of the closest canon materials that confirm one nation is related to another.
 
 ## Not enough? There's more.
 ### CARDVERSE EXISTS!
 Cardverse, as you all may know, is a canonical universe **supported by HIMA**.
-In the Cardverse, America and England are the **King and Queen**. This may be the closest canon signal that Hima does not object to the ship nor sees it incestual.
+In the Cardverse, America and England are the **King and Queen**. This may be the closest canon signal that Hima does not object to the ship nor sees it incestrous.
 
 ### UKUS YAOI DRAMA CDS WERE MADE!
 > (*Note: These mentioned drama CDs have no impact canon timeline and are usually created for fanservice, however, are drawn from canon material) 
 - Works of Yaoi Drama CDs tend to make it very well known if the characters are in an incest relationship. And in the CD, they are not.
 
-**Thank you for reading until the very end! Once again, incest is disgusting, real OR fictional, yikes!**
-
+**Thank you for reading until the very end!**
 
 
 
