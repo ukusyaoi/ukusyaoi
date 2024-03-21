@@ -4,6 +4,8 @@
 
   read for more in my **[rentry](https://rentry.co/IAMTHEHERO)** !
 
+  https://howlongagogo.com/countdown/ysADjZ2Go0FP?ucd=1
+
 # Instead decided to make a rentry. Currently a wip
 　　　
  
