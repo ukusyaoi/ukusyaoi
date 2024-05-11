@@ -1,7 +1,6 @@
-###### 　　![](https://i.imgur.com/S3oNsw7.gif)　. . .　**ηeva**　*or*　**נyu**　୨୧ she / her ![](http://i122.photobucket.com/albums/o260/mhilka/minigifs/stara17.gif) read for more in my **[rentry](https://rentry.co/IAMTHEHERO)** !  ![](http://i122.photobucket.com/albums/o260/mhilka/minigifs/stara16.gif)        
 > https://rentry.co/ukusisnotproblematic
 
-###### 　　The day I met the [love](https://howlongagogo.com/countdown/ysADjZ2Go0FP?ucd=1) of my life. 
+The day I met the [love](https://howlongagogo.com/countdown/ysADjZ2Go0FP?ucd=1) of my life. 
 
 
 
