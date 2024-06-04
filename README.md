@@ -1,4 +1,4 @@
-> https://rentry.co/ukusisnotproblematic
+
 
 The day I met the [love](https://howlongagogo.com/countdown/ysADjZ2Go0FP?ucd=1) of my life. 
 
