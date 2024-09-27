@@ -11,7 +11,4 @@
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/meee2.png">
 </p>
-<p align="center">
-♡ UKUS > USUK ♡
-</p>
 </html>
