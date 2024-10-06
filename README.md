@@ -12,7 +12,6 @@
 <img src="https://ukusyaoi.neocities.org/meee2.png">
 <img src="https://ukusyaoi.neocities.org/makoto.png">
 <img src="https://ukusyaoi.neocities.org/shuitsuki.png">
-<img src="https://ukusyaoi.neocities.org/meeee.png">
 <img src="https://ukusyaoi.neocities.org/mamaa.png">
   <p align="center">
 <img src="https://ukusyaoi.neocities.org/whitepixelflowers.png">
