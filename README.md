@@ -1,8 +1,6 @@
 <html>
   <body>
 <p align="center">
-https://rentry.co/bllkraiders
-<p align="center">
   <img src="https://ukusyaoi.neocities.org/coollogo_com-1141298.png"> <img src="https://ukusyaoi.neocities.org/coollogo_com-51041166.png">
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/makotoyuukikun2.png"> <img src="https://ukusyaoi.neocities.org/makotoyuukikun3.png"> <img src="https://ukusyaoi.neocities.org/makotoyuukikun4.png">
