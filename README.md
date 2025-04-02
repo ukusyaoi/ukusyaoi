@@ -1,7 +1,9 @@
 <html>
   <body>
-<p align="center">
-    <a href="https://ukuscanon.straw.page/">UKUSUK is NOT incest and here's why!</a>
+    <p align="center">
+<img src="https://ukusyaoi.neocities.org/fonts/heeeeaa.png"> <img src="https://ukusyaoi.neocities.org/fonts/flamingtext_com-24189146129.png"> <img src="https://ukusyaoi.neocities.org/fonts/okekeeeee.png">
+       <p align="center">
+<img src="https://ukusyaoi.neocities.org/fonts/coollogo_com-2068014.png">
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/fonts/saerinart.jpeg">
   <p align="center">
