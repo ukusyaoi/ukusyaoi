@@ -1,9 +1,9 @@
 <html>
   <body>
     <p align="center">
-<img src="https://ukusyaoi.neocities.org/fonts/9teentest.png"> <img src="https://ukusyaoi.neocities.org/fonts/ehheh.png"> <img src="https://ukusyaoi.neocities.org/fonts/shehimtest.png">
+<img src="https://ukusyaoi.neocities.org/github/9teen.png"> <img src="https://ukusyaoi.neocities.org/github/shehim.png"> <img src="https://ukusyaoi.neocities.org/github/turkish.png">
        <p align="center">
-<img src="https://ukusyaoi.neocities.org/fonts/girlboythingfujo.png">
+<img src="https://ukusyaoi.neocities.org/github/fujodanshi.png">
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/fonts/saerinart.jpeg">
   <p align="center">
