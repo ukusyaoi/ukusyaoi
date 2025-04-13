@@ -3,10 +3,10 @@
     <p align="center">
 <img src="https://ukusyaoi.neocities.org/github/9teen.png"> <img src="https://ukusyaoi.neocities.org/github/shehim.png"> <img src="https://ukusyaoi.neocities.org/github/turkish.png">
        <p align="center">
-<img src="https://ukusyaoi.neocities.org/github/fujodanshi.png">
+<img src="https://ukusyaoi.neocities.org/github/fujodangboy.png">
 <p align="center">
-<img src="https://ukusyaoi.neocities.org/fonts/saerinart.jpeg">
+<img src="https://ukusyaoi.neocities.org/github/se%E3%81%A8rin.jpeg">
   <p align="center">
-    <a href="https://rentry.co/IAMTHEHERO"><img src="https://ukusyaoi.neocities.org/fonts/flamingtext_com-2087155557.png"></a> <a href="https://makotoyuukun.straw.page/"><img src="https://ukusyaoi.neocities.org/fonts/coollogo_com-45343595.png"></a> <a href="https://izmk.atabook.org/"><img src="https://ukusyaoi.neocities.org/fonts/flamingtext_com-2017139748.png"></a>
+    <a href="https://rentry.co/IAMTHEHERO"><img src="https://ukusyaoi.neocities.org/github/rentry.png"></a> <a href="https://makotoyuukun.straw.page/"><img src="https://ukusyaoi.neocities.org/github/strawpage.png"></a> <a href="https://izmk.atabook.org/"><img src="https://ukusyaoi.neocities.org/github/atabook.png"></a>
     </body>
 </html>
