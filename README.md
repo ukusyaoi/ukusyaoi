@@ -7,6 +7,6 @@
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/github/se%E3%81%A8rin.jpeg">
   <p align="center">
-    <a href="https://rentry.co/IAMTHEHERO"><img src="https://ukusyaoi.neocities.org/github/rentry.png"></a> <a href="https://makotoyuukun.straw.page/"><img src="https://ukusyaoi.neocities.org/github/strawpage.png"></a> <a href="https://izmk.atabook.org/"><img src="https://ukusyaoi.neocities.org/github/atabook.png"></a>
+    <a href="https://rentry.co/rin10"><img src="https://ukusyaoi.neocities.org/github/rentry.png"></a> <a href="https://makotoyuukun.straw.page/"><img src="https://ukusyaoi.neocities.org/github/strawpage.png"></a> <a href="https://izmk.atabook.org/"><img src="https://ukusyaoi.neocities.org/github/atabook.png"></a>
     </body>
 </html>
