@@ -1,14 +1,14 @@
 <html>
   <body>
     <p align="center">
-<img src="https://ukusyaoi.neocities.org/github/9teen.png"> <img src="https://ukusyaoi.neocities.org/github/shehim.png"> <img src="https://ukusyaoi.neocities.org/github/turkish.png">
+<img src="https://ukusyaoi.neocities.org/github/nineteen.png"> <img src="https://ukusyaoi.neocities.org/github/shehimthing.png"> <img src="https://ukusyaoi.neocities.org/github/turrkish.png">
        <p align="center">
 <img src="https://ukusyaoi.neocities.org/github/fujodangboy.png">
 <p align="center">
-<img src="https://ukusyaoi.neocities.org/github/se%E3%81%A8rin.jpeg">
+<img src="https://ukusyaoi.neocities.org/github/nekosern.png">
   <p align="center">
     </body>
 </html>
 
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ukusyaoi&color=acecee&label=My+Fans&base=500&abbreviated=true)
+　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ukusyaoi&color=gray&label=My+Fans&base=500&abbreviated=true)
