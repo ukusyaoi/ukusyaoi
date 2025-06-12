@@ -1,11 +1,11 @@
 <html>
   <body>
     <p align="center">
-<img src="https://ukusyaoi.neocities.org/github/nineteen.png"> <img src="https://ukusyaoi.neocities.org/github/shehimthing.png"> <img src="https://ukusyaoi.neocities.org/github/turrkish.png">
+<img src="https://ukusyaoi.neocities.org/thing/9teen.png"> <img src="https://ukusyaoi.neocities.org/thing/shehim.png"> <img src="https://ukusyaoi.neocities.org/thing/turkish.png">
        <p align="center">
 <img src="https://ukusyaoi.neocities.org/github/fujodangboy.png">
 <p align="center">
-<img src="https://ukusyaoi.neocities.org/github/nekosern.png">
+<img src="https://ukusyaoi.neocities.org/github/sern.png">
   <p align="center">
     </body>
 </html>
