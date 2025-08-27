@@ -7,4 +7,4 @@
 </html>
 
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ukusyaoi&color=95c4bc&label=My+Fans&base=500&)
+　　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ukusyaoi&style=pixel&color=gray&label=my+fans&base=500&)
