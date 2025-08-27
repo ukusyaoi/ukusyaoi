@@ -1,11 +1,7 @@
 <html>
   <body>
-    <p align="center">
-<img src="https://ukusyaoi.neocities.org/pixel/9teen.png"> <img src="https://ukusyaoi.neocities.org/pixel/shehim.png"> <img src="https://ukusyaoi.neocities.org/pixel/turkish.png">
-       <p align="center">
-<img src="https://ukusyaoi.neocities.org/pixel/fujoshigirlboything.png">
 <p align="center">
-<img src="https://ukusyaoi.neocities.org/github/sern.png">
+<img src="https://ukusyaoi.neocities.org/rinchan/bakabakaniichan.gif">
   <p align="center">
     </body>
 </html>
