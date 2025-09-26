@@ -3,6 +3,7 @@
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/rinchan/bakabakaniichan.gif">
   <p align="center">
+   My Goats <a href="https://github.com/ragjinsex">@ragjinsex</a> & <a href="https://github.com/alvaIuca">@alvaluca</a>
     </body>
 </html>
 
