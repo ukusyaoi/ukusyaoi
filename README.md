@@ -4,6 +4,8 @@
 <img src="https://ukusyaoi.neocities.org/rinchan/bakabakaniichan.gif">
   <p align="center">
    ⚠ CANCEL LIST : <a href="https://github.com/ragjinsex">@ragjinsex</a> & <a href="https://github.com/alvaIuca">@alvaluca</a>
+    <p align="center">
+I MISS MY OOMFS #UNBANTHEMNOW 😭
     </body>
 </html>
 
