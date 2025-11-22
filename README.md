@@ -3,9 +3,9 @@
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/rinchan/bakabakaniichan.gif">
   <p align="center">
-   ⚠ CANCEL LIST : <a href="https://github.com/ragjinsex">@ragjinsex</a> & <a href="https://github.com/alvaIuca">@alvaluca</a>
+   Ship Shikiaki For <a href="https://github.com/aicatch">@aicatch</a>
     <p align="center">
-I MISS MY OOMFS #UNBANTHEMNOW 😭
+R.I.P <a href="https://github.com/ragjinsex">@ragjinsex</a> We miss you 🥺
     </body>
 </html>
 
