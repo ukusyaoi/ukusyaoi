@@ -3,7 +3,7 @@
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/rinchan/bakabakaniichan.gif">
   <p align="center">
- I ♡ MY BIG SLOPS! <a href="https://github.com/noizao">@noizao</a>
+ I ♡ MY BIG SLOPS! <a href="https://github.com/noizao">@noizao</a> & <a href="https://github.com/cutefoid">@cutefoid</a>
     <p align="center">
     </body>
 </html>
