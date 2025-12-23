@@ -3,9 +3,8 @@
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/rinchan/bakabakaniichan.gif">
   <p align="center">
-   Ship Shikiaki For <a href="https://github.com/aicatch">@aicatch</a>
+ I ♡ MY BIG SLOPS! <a href="https://github.com/noizao">@noizao</a>
     <p align="center">
-R.I.P <a href="https://github.com/ragjinsex">@ragjinsex</a> We miss you 🥺
     </body>
 </html>
 
