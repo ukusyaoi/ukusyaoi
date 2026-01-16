@@ -3,7 +3,7 @@
 <p align="center">
 <img src="https://ukusyaoi.neocities.org/background/images/blue-lock-alia-rin.gif">
   <p align="center">
- I ${\color{#7dc3c3}❤︎⁠}$ MY BIG SLOPS! (˶ˆᗜˆ˵)
+ I　 ${\color{#7dc3c3}❤︎⁠}$ MY BIG SLOPS! (˶ˆᗜˆ˵)
     <p align="center">
     </body>
 </html>
