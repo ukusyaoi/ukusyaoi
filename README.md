@@ -1,12 +1,12 @@
 <html>
   <body>
 <p align="center">
-<img src="https://ukusyaoi.neocities.org/rinchan/bakabakaniichan.gif">
+<img src="https://ukusyaoi.neocities.org/background/images/blue-lock-alia-rin.gif">
   <p align="center">
- I ♡ MY BIG SLOPS! · <a href="https://ragjin.atabook.org/">@evil atabook</a> ← sign NOW!
+ I ${\color{#7dc3c3}❤︎⁠}$ MY BIG SLOPS! (˶ˆᗜˆ˵)
     <p align="center">
     </body>
 </html>
 
 
-　　　　　　　　　　　　　　　　　　　Big #JOY & #LOVE everybody. → ![](https://komarev.com/ghpvc/?username=ukusyaoi&style=solid&color=gray&label=my+fans&base=500&)
+　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ukusyaoi&style=pixel&color=gray&label=my+fans&base=500&)
