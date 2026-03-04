@@ -4,7 +4,6 @@
 <img src="https://ukusyaoi.neocities.org/background/images/blue-lock-alia-rin.gif">
   <p align="center">
  I　 ${\color{#7dc3c3}❤︎⁠}$ MY BIG SLOPS!　 (˶ˆᗜˆ˵)<br/>
-    Rin(-chan)  20 She/Him Pan-Lesbian<br/>
     <p align="center">
     </body>
 </html>
