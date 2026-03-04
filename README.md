@@ -5,7 +5,6 @@
   <p align="center">
  I　 ${\color{#7dc3c3}❤︎⁠}$ MY BIG SLOPS!　 (˶ˆᗜˆ˵)<br/>
     Rin(-chan)  20 She/Him Pan-Lesbian<br/>
-    I AM PRO-FICTION!!　#I♡EVILYAOI
     <p align="center">
     </body>
 </html>
