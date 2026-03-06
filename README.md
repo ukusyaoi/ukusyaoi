@@ -1,7 +1,7 @@
 <html>
   <body>
 <p align="center">
-<img src="https://ukusyaoi.neocities.org/background/images/blue-lock-alia-rin.gif">
+<img src="https://ukusyaoi.neocities.org/turkiye/awwweeee.gif">
   <p align="center">
  I　 ${\color{#7dc3c3}❤︎⁠}$ MY BIG SLOPS!　 (˶ˆᗜˆ˵)<br/>
     <p align="center">
