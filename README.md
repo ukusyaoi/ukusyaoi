@@ -11,4 +11,4 @@
 </html>
 
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ukusyaoi&style=solid&color=red&label=My+Kind+Fans&base=500&)
+　　　　　　　　　　　　　　　　　　　　　　　　　　![](https://komarev.com/ghpvc/?username=ukusyaoi&style=solid&color=blue&label=My+Kind+Fans&base=500&)
